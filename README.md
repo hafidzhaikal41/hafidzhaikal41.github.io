@@ -1,1 +1,1 @@
-Kalau mau melihat hasil project saya bisa klik hafidzhaikal41.github.io
+Kalau mau melihat hasil project saya bisa di copy hafidzhaikal41.github.io
